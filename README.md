@@ -6,3 +6,6 @@ https://youtu.be/RCDQM0mXzfY
 
 ## Team Charlotte Viallage
 https://blog.naver.com/charlotteim
+
+## 듣는 교과서
+https://blog.naver.com/textbooklist
